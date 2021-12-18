@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🌱I’m currently learning AI
+
+⚡ Fun fact:
+
++ Love games, and play **Kena: Bridge of Spirits** now. 
