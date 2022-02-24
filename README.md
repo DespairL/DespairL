@@ -19,4 +19,15 @@ Here are some ideas to get you started:
 
 ⚡ Fun fact:
 
-+ Love games, and play **Kena: Bridge of Spirits** now. 
++ Love games：
+  + I'm looking forward to :
+    + elden ring  
+  + Finish :  
+    + Warm Snow.
+    + Hollow Knight.
+    + Assassin's Creed Mythology Trilogy.
+    + Genshin Impact.
+    + Arknights.
+    + Sekiro
+    + Spiritfarer
+    + and so on..
