@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌱I’m currently learning AI
+🌱I’m currently learning AI/.../... and try to find a summer internship(just encourage myself).
 
 ⚡ Fun fact:
 
