@@ -20,8 +20,8 @@ Here are some ideas to get you started:
 ⚡ Fun fact:
 
 + Love games：
-  + I'm looking forward to :
-    + elden ring  
+  + I'm looking forward to (x) :
+    + elden ring  (And now I think it is the most wonderful game in the world.)
   + Finish :  
     + Warm Snow.
     + Hollow Knight.
