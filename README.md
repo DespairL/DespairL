@@ -15,19 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌱I’m currently learning AI/.../... and try to find a summer internship(just encourage myself).
+🌱I’m currently learning AI.
+👯Study in NJU AI.
 
-⚡ Fun fact:
-
-+ Love games：
-  + I'm looking forward to (x) :
-    + elden ring  (And now I think it is the most wonderful game in the world.)
-  + Finish :  
-    + Warm Snow.
-    + Hollow Knight.
-    + Assassin's Creed Mythology Trilogy.
-    + Genshin Impact.
-    + Arknights.
-    + Sekiro
-    + Spiritfarer
-    + and so on..
